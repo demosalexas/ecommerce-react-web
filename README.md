@@ -1,0 +1,1 @@
+Part 1 = https://youtu.be/y99YgaQjgx4?t=2007
